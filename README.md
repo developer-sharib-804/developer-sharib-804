@@ -6,7 +6,5 @@
 
 💞️ I’m looking to collaborate on projects related to AI, web development, and emerging technologies.
 
-📫 How to reach me: sharibateeq804@gmail.com
-
 😄 Pronouns: Sherry    
   
